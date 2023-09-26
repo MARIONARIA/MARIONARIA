@@ -4,4 +4,4 @@ milionaria e rafica 💸
 luan santana 🎵
 
 ![]()
-https://media.tenor.com/NYMZCHsP4wcAAAAi/leslieannexo-taylor-swift.gif
+https://media.tenor.com/A2RTAPgHHlgAAAAC/luan-santana-blow-kiss.gif
